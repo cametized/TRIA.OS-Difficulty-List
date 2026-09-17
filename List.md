@@ -303,7 +303,7 @@
 
 150. `6.145` **Electrical Malfunction** by Ethan76167 [em1] [[https://www.youtube.com/watch?v=kQquFCls1PE](https://www.youtube.com/watch?v=kQquFCls1PE)]
 
-151. `6.14` **Terracorus** by thxrsd_ay [gflax] [[https://www.youtube.com/watch?v=nZte4vfA62Y](https://www.youtube.com/watch?v=nZte4vfA62Y)]
+151. `6.14` **Terracorus** by thxrsd_ay [gflax] [[https://www.youtube.com/watch?v=X2uNp_jc7cY](https://www.youtube.com/watch?v=X2uNp_jc7cY)]
 
 152. `6.13` **Unstable Presidium** by FabricioPF [jvtqp] [[https://www.youtube.com/watch?v=IuInEC0EVH4](https://www.youtube.com/watch?v=IuInEC0EVH4)] 
 
